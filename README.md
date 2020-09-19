@@ -6,6 +6,6 @@
 - 👯 I’m looking to collaborate on anything programming related
 - 🤔 I’m looking for help with getting a paycheck
 - 💬 Ask me about Computer programming
-- 📫 How to reach me: [Gmail](mailto:hateganfloringeorge@gmail.com) [Facebook](https://www.facebook.com/hategan.floringeorge)
+- 📫 How to reach me: [Gmail](mailto:hateganfloringeorge@gmail.com)
 - 😄 Pronouns: He\His
 - ⚡ Fun fact: A parent may kill its children if the task assigned to them is no longer needed.
